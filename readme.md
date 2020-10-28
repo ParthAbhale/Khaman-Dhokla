@@ -1,0 +1,1 @@
+Commonly made with freshly ground soaked chana dal, this recipe is an adaptation which is quick and convenient. It is a savory, light and steamed dish from Gujrat and is very healthy. This goes well with mint and coriander chutney.
